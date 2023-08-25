@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/AbhiRanj123?tab=repositories](https://github.com/AbhiRanj123?tab=repositories)
 
-- 📫 How to reach me **abhiranjan0402@gmail.com**
+- 📫 Feel free to reach out **abhiranjan0402@gmail.com**
 
 - 📄 More about me (RESUME) [https://drive.google.com/file/d/1ZFQqP6V_I5w_aRCmyhdttRzcdCfGBwb9/view?usp=sharing](https://drive.google.com/file/d/1ZFQqP6V_I5w_aRCmyhdttRzcdCfGBwb9/view?usp=sharing)
 
