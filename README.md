@@ -9,7 +9,7 @@
 
 - 📫 Feel free to reach out **abhiranjan0402@gmail.com**
 
-- 📄 More about me (RESUME) [https://drive.google.com/file/d/1XAhCps1WwBb1tnWRx1cMHLQWGUI57o_m/view?usp=sharing)
+- 📄 More about me (RESUME) [https://drive.google.com/file/d/1lvpIvyOkXlvwPpDLu8FbO1JeYGNGaXQo/view]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
