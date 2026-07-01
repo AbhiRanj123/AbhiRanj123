@@ -3,13 +3,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=abhiranj123&label=Profile%20views&color=0e75b6&style=flat" alt="abhiranj123" /> </p>
 
-- 🔭 I’m currently working as **Moderator at Machine Learning Club NIT Silchar**
+- 🔭 I’m currently working as **Software Developer I @ SAP**
 
 - 👨‍💻 All of my projects are available at [https://github.com/AbhiRanj123?tab=repositories](https://github.com/AbhiRanj123?tab=repositories)
 
-- 📫 Feel free to reach out **abhiranjan0402@gmail.com**
+- 📫 Feel free to reach out **abhishekcsenits177@gmail.com**
 
-- 📄 More about me (RESUME) [https://drive.google.com/file/d/1lvpIvyOkXlvwPpDLu8FbO1JeYGNGaXQo/view]
+- 📄 More about me (RESUME) [https://drive.google.com/file/d/1b9A1CixzDmTO6q8Q_p-y-ETSCqjDOjh1/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
